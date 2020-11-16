@@ -1,0 +1,2 @@
+# supreme
+The supreme stupidity
